@@ -2,7 +2,7 @@
 
 ## Introduction to P2B Exchange Referral Code
 
-If you are looking to start your crypto trading journey, the **P2B exchange Referral Code "17d833d8"** is one of the best ways to maximize your benefits from the beginning. This exclusive code helps new users unlock **10% discount on trading fees and up to $9000 bonus rewards**, making it a powerful entry point for beginners and experienced traders alike.
+If you are looking to start your crypto trading journey, the **[P2B exchange Referral Code "17d833d8"](https://p2bexchangereferralcode.com/)** is one of the best ways to maximize your benefits from the beginning. This exclusive code helps new users unlock **10% discount on trading fees and up to $9000 bonus rewards**, making it a powerful entry point for beginners and experienced traders alike.
 
 The **P2B exchange Referral Code** is widely used by traders who want to reduce costs and increase their earnings potential. Whether you are signing up for the first time or looking for the **P2B exchange Referral Code latest**, this guide will help you understand everything in detail.
 
